@@ -21,7 +21,11 @@ The fusion of Bitcoin's reliability and the innovative allure of Ordinals flippi
 Need Support? Join Our Discord!
 
 We're here to help you every step of the way. For support, questions, or to join our community of like-minded enthusiasts, please raise a ticket in our Discord channel: Join us on Discord.
-https://discord.gg/Yezs2VDhBV 
+https://discord.gg/CsGGnd7rtJ
+
+discord: mattnfttools
+
+telegram: nfttoolz
 
 Don't Miss Out on the Next Big Thing in Crypto
 
